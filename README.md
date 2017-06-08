@@ -1,1 +1,0 @@
-# shr7.github.io
